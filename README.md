@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Mohitsaroya
+- 👀 I’m interested in software develpoment and making games
+- 🌱 I’m currently learning dsa
+- 💞️ I’m looking to collaborate on cool stuff
+- 📫 How to reach me? email (mohitsaroya999@gmail.com)
+- 😄 Pronouns: hee/hee
+- ⚡ Fun fact: did you know that mayonnaise is the sauce of the aristocrat?
